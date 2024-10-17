@@ -5,7 +5,7 @@
 - Phone Num：18225026218
 - Email：edward1045810669@gmail.com 
 - QQ：1045810669
-- Wechat：18225026218
+- Wechat：-------
 
 # 个人信息
  
